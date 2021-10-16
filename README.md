@@ -5,3 +5,4 @@
 - 💃we are 13 and 12 and we will keep your kids entertained and excited!
 - 🧭we babysit at 4:00-7:00 pm
 - 🦄we only babysit around bairnsdale, vic.
+- 🐸we babysit monday-thursday and sometimes on weekends. we do scheduel the appointments so we will let you know if its taken!
