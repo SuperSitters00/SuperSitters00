@@ -1,0 +1,7 @@
+- 👋 Hi, we are the @SuperSitters00
+- 👀 we are interested in babysitting and taking care of your children
+- 📫 you can call or email us at: 0493081684, auroralinda27@outlook.com or Applezz@icloud.com
+- SuperSitters00 is a ✨ special ✨ club premoted to help you and make your life easier by babysitting your kids!
+- 💃we are 13 and 12 and we will keep your kids entertained and excited!
+- 🧭we babysit at 4:00-7:00 pm
+- 🦄we only babysit around bairnsdale, vic.
